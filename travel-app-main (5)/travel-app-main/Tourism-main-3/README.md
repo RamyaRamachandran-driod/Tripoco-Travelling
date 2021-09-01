@@ -1,1 +1,1 @@
-# TRIPOCO - where the travel begins
+# TRIPOCO - Where travel begins
